@@ -1,4 +1,3 @@
-kocakkkkkk
 yang sudah bayar wearpack:
 1. haura zeeba karima lunas ✅
 2. nandana janitra prasojo lunas ✅
